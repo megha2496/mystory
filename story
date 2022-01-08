@@ -2,4 +2,4 @@ In a spell of dry weather, when the Birds could find very little to drink, a thi
 
 Then an idea came to him. 
 Picking up some small pebbles, he dropped them into the pitcher one by one. 
-hello With each pebble the water rose a little higher until at last it was near enough so he could drink
+hello bye With each pebble the water rose a little higher until at last it was near enough so he could drink
